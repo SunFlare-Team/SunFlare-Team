@@ -3,7 +3,8 @@
 ![SUN](https://raw.githubusercontent.com/SunFlare-Team/SunFlare-Team/main/sunflare_team_compressed.png)
 
 
-# `BOTS × TEAM`
+# 🌤️​᭄ `BOTS × TEAM`
+
 - ☕ᯓ [**sʜᴀᴅᴏᴡ ᴜʟᴛʀᴀ**]()
 - 🪐ᯓ [**ᴄʀᴏᴡ ʙᴏᴛ**]()
 - 🍫ᯓ [**ʙᴀʀʙᴏᴢᴀ ᴀɪ**]()
