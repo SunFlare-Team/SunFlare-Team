@@ -1,6 +1,6 @@
 # `SUNFLARE - TEAM`
 
-# ໒֟፝🌤️ ֪ 𝖲ᥙᥒ͟𝖿ᥣ͟ᥲ𝗋ᥱ  ᯓ  Tᥱᥲm  協会
+# 🌤️ 𝖲ᥙᥒ͟𝖿ᥣ͟ᥲ𝗋ᥱ  ᯓ  Tᥱᥲm  協会
 
 ![SUN](https://raw.githubusercontent.com/SunFlare-Team/SunFlare-Team/main/sunflare_team_compressed.png)
 
