@@ -1,4 +1,4 @@
-# **`🌤️ 𝖲ᥙᥒ𝖿ᥣᥲ𝗋ᥱ ᯓ Tᥱᥲm`**
+# **`🌤️ 𝖲ᥙᥒ𝖿ᥣᥲ𝗋ᥱ Tᥱᥲm`**
 
 ![SUN](https://raw.githubusercontent.com/SunFlare-Team/SunFlare-Team/main/sunflare_team_compressed.png)
 
