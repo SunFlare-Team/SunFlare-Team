@@ -1,6 +1,4 @@
-# `SUNFLARE - TEAM`
-
-# 🌤️ 𝖲ᥙᥒ͟𝖿ᥣ͟ᥲ𝗋ᥱ ᯓ Tᥱᥲm
+# **`🌤️ 𝖲ᥙᥒ𝖿ᥣᥲ𝗋ᥱ ᯓ Tᥱᥲm`**
 
 ![SUN](https://raw.githubusercontent.com/SunFlare-Team/SunFlare-Team/main/sunflare_team_compressed.png)
 
