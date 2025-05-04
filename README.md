@@ -6,9 +6,9 @@
 # 🌤️​ `BOTS × TEAM`
 
 - ☕ᯓ [**sʜᴀᴅᴏᴡ ᴜʟᴛʀᴀ**](https://whatsapp.com/channel/0029VauTE8AHltY1muYir31n)
-- 🪐ᯓ [**ᴄʀᴏᴡ ʙᴏᴛ**]()
+- 🪐ᯓ [**ᴄʀᴏᴡ ʙᴏᴛ**](https://whatsapp.com/channel/0029Vb1AFK6HbFV9kaB3b13W)
 - 🍫ᯓ [**ʙᴀʀʙᴏᴢᴀ ᴀɪ**](https://whatsapp.com/channel/0029Vaua0ZD3gvWjQaIpSy18)
-- 🌸ᯓ [**ᴍɪᴋᴜ ʙᴏᴛ**]()
+- 🌸ᯓ [**ᴍɪᴋᴜ ʙᴏᴛ**](https://whatsapp.com/channel/0029VaGt7Uk6WaKkEDZUh43W)
 - 🍧ᯓ [**ɢᴇɴᴇsɪs ᴀɪ**](https://whatsapp.com/channel/0029VaJxgcB0bIdvuOwKTM2Y)
 - 🚀ᯓ [**ɴɪɴᴏ ɴᴀᴋᴀɴᴏ**](https://whatsapp.com/channel/0029Vaz6RTR0LKZIKwudX32x)
 
